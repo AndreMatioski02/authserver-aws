@@ -7,5 +7,3 @@ https://pucpredu-my.sharepoint.com/:v:/g/personal/andre_matioski_pucpr_edu_br/ER
 
 ![print-notificacao-sms](https://github.com/user-attachments/assets/f08b9355-c0c1-4d26-acba-992f3afb58d2)
 ![print-sms](https://github.com/user-attachments/assets/5792cdc6-95e8-47d7-91d3-1b018fb2ee1b)
-
-![print-notificacao-sms](https://github.com/user-attachments/assets/ef8a416a-98be-4d47-b5c3-df7d6372cba1)
